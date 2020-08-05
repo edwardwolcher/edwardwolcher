@@ -26,7 +26,7 @@ contact: edwardwolcher@gmail.com
 
 * Computer Science Certifications: CS50x, CS50web, FullStackOpen — 2020
 
-* University of Washington, Seattle - BA Philosophy with Honors 2007
+* University of Washington, Seattle: BA Philosophy with Honors — 2007
 
 ## Skills
 
