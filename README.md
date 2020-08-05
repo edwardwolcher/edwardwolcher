@@ -35,4 +35,3 @@ University of Washington, Seattle - BA Philosophy with Honors 2007
 * Skilled writer and editor with ability to work quickly and independently to produce well-researched, clear, effective copy.
 * Extensive experience with broad-based outreach in racially and culturally diverse communities with a deep commitment to equity and community accountability.
 * Curator with expertise in contemporary performance, politics, & literature.
-
