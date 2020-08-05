@@ -20,7 +20,7 @@ contact: edwardwolcher@gmail.com
 
 ### Production & Consulting — 2007-2019
 
-* I organized and facilitated events, wrote copy, and develop multimedia products for clients working in the arts, social justice, and environmental activism. (Major clients included One America, Rainier Arts Center, JunctionHouse Commons, the Seattle Arts Commission, and the Sustainable Path Foundation)
+* I organized and facilitated events, wrote copy, and developed multimedia products for clients working in the arts, social justice, and environmental activism. (Major clients included One America, Rainier Arts Center, JunctionHouse Commons, the Seattle Arts Commission, and the Sustainable Path Foundation)
 
 ## Education
 
