@@ -7,7 +7,7 @@ contact: edwardwolcher@gmail.com
 
 ## Arts Technologist & Cultural Organizer
 
-> I collaborate with artists, cultural organizations, and social justice activists to plan and implement technologies that amplify their work.
+> I collaborate with artists, cultural organizations, and social justice activists to plan and execute technologies that amplify their work.
 
 ## Professional Experience
 
@@ -17,7 +17,7 @@ contact: edwardwolcher@gmail.com
 
 ### Town Hall Seattle — 2010-2020
 
-* In my decade at Town Hall Seattle I produced over 500 events, developed and implemented an industry-leading multimedia program, and held a leadership role at the organization as it undertook a $35 million capital fundraising campaign and building renovation. As their Curator of Lectures (2017-2020) I was responsible for planning and delivering a program of civics, science, and arts & culture events at thirty venues in Seattle for over 100,000 people. I developed deep knowledge of the Seattle civic and cultural sectors, and all aspect of literary and performing arts management.
+* In my decade at Town Hall Seattle I produced over 500 events, developed and implemented an industry-leading multimedia program, and held a leadership role at the organization as it undertook a $35 million capital fundraising campaign and building renovation. As their Curator of Lectures (2017-2020) I was responsible for planning and delivering a program of civics, science, and arts & culture events at thirty venues in Seattle for over 100,000 people. I developed deep knowledge of the Northwest's civic and cultural sectors, and all aspects of literary and performing arts management.
 
 ### Production & Consulting — 2007-2019
 
