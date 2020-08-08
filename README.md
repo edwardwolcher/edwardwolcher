@@ -6,7 +6,7 @@ edwardwolcher@gmail.com
 
 ## Summary
 
-I am an arts technologist & cultural organizer with over a decade of leadership experience in project management, information technology, and digital media production. I collaborate with artists, cultural organizations, and activists to plan and implement technologies that amplify their voice. My work combines expertise as a program director with innovative use of web and media technologies.
+I am an arts technologist & cultural organizer with over a decade of leadership experience in project management, information technology, and digital media production. I collaborate with artists, cultural organizations, and activists to plan and implement projects that amplify their voice. My work combines expertise as a program director with innovative use of web and media technologies.
 
 ## Professional Experience
 
