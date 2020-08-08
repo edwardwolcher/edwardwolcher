@@ -1,1 +1,4 @@
 .vscode
+.ds_store
+markdown_process
+make_resume
