@@ -32,5 +32,5 @@ I organized and facilitated events, wrote copy, and developed multimedia product
 - Full Stack Web Development. Primary tools and technologies: _Python (Django), Javascript (Node, P5, React), SQL, HTML + CSS, Git, VSCode, Netlify_
 - Multimedia Production and Motion Graphics. Primary tools and technologies: _Adobe Creative Suite, FinalCut Pro, Apple Motion, Ableton Live, Livestream Studio, OBS._
 - Skilled writer and editor with ability to work quickly and independently to produce well-researched, clear, effective copy.
-- Extensive experience with broad-based outreach in racially and culturally diverse communities with a deep commitment to equity and community accountability.
+- Extensive experience with broad-based outreach in racially and culturally diverse communities; deep commitment to equity and community accountability.
 - Program curation for contemporary performance, politics, & literature.
