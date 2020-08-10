@@ -18,7 +18,7 @@ During quarantine my focus has been re-envisioning live events as virtual produc
 
 In my decade at Town Hall Seattle I produced over 500 events, developed an industry-leading multimedia program, and held a leadership role at the organization as it undertook a 35 million dollar capital fundraising campaign and building renovation. As their Curator of Lectures (2017-2020) I was responsible for planning and delivering a program of civics, science, and arts & culture events at thirty venues in Seattle for over 100,000 people. I developed deep knowledge of the Northwest's civic and cultural sectors, and all aspects of literary and performing arts management.
 
-From 2014-2017 I served as Town Hall's Curator of Community Programs with a focus on outreach and media production. From 2010-2014 I served as their Patron Services Manager where I oversaw their transition to a new CRM and ticketing system.
+From 2014-2017 I served as Town Hall's Curator of Community Programs with a focus on outreach and media production. From 2010-2014 I served as their Patron Services Manager where I managed a transition to a new CRM, launched their podcast and video programs, and oversaw their front-of-house staff.
 
 ### Independent Production & Consulting — 2007-2019
 
