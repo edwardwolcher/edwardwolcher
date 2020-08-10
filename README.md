@@ -24,6 +24,10 @@ From 2014-2017 I served as Town Hall's Curator of Community Programs with a focu
 
 I organized and facilitated events, wrote copy, and developed multimedia products for clients working in the arts, social justice, and environmental activism. (Major clients included One America, Rainier Arts Center, JunctionHouse Commons, the Seattle Arts Commission, and the Sustainable Path Foundation)
 
+### Theatre and Media Artist — Ongoing
+
+I am a playwright, sound-designer, and performer who has collaborated with organizations including: the Satori Group, The Northwest Film Forum, ACT Theatre, On the Boards, Inscape Arts & The Seattle Art Museum. My work as an artist gives me broad perspective on all sides of creative projects from big-picture vision to the nitty-gritty of project organization and finance.
+
 ## Education
 
 - Computer Science Certifications: CS50x, CS50web, FullStackOpen — 2020
