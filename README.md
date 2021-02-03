@@ -2,7 +2,6 @@
 
 > Arts Technologist & Cultural Organizer.
 
-edwardwolcher@gmail.com
 
 ## Summary
 
